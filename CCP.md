@@ -1,0 +1,1 @@
+[AWS Certified Cloud Practitioner Training 2020 - Full Course](https://youtu.be/3hLmDS179YE)
